@@ -34,8 +34,7 @@
 ![1](https://i.ibb.co/KrDZ7GR/tumblr-f98d60ae70817884b921d469072d09bd-ff9231f5-250-gif.webp)
 ![1](https://i.ibb.co/1Tz6690/tumblr-b57d63f37bb7bccaff694f1f800e84b0-59bb377a-250-gif.webp)
 ![1](https://i.ibb.co/p0t3VhY/ezgif-2-87395ead81.gif)
-![1](https://i.ibb.co/VBCRJJy/ezgif-2-7ca9403d72.gif)
-![1](https://i.ibb.co/pvhfsnT/tumblr-f0e4ec808c99345717893e3dda9f102e-33cf851a-250.gif)
+![1](https://i.ibb.co/HYHJ3BM/ezgif-3-23131e2b31.webp)
 
 
 ![1](https://i.ibb.co/G7QJsKG/Untitled114-20240824065955.png)
