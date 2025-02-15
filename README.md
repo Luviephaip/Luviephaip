@@ -1,6 +1,10 @@
 ![1](https://64.media.tumblr.com/11aae1910c6f05e25833c39a30eeb704/8dc3bd10b7841dca-89/s1280x1920/1349533ab139dea8ccabbc9854697e7cd1406c50.jpg)
 
 
+![1](https://i.ibb.co/DHDZHQrT/tumblr-d8951a2ad1e08a0c2284d3fc62892f8c-fa4f68e7-100.png)
+![1](https://i.ibb.co/bRy1Gwjk/tumblr-4a1ed823c06449952eb5ecaf767ce138-d62dbb46-100.png)
+![1](https://i.ibb.co/nshXZdKz/Untitled242-20250215190234.png)
+![1](https://i.ibb.co/gbY8CN0c/Untitled242-20250215190404.png)
 ![1](https://i.ibb.co/J2WytFs/tumblr-5d1f34ddeb66789e54306c948e95a8ee-62d843f5-100.gif)
 ![1](https://i.ibb.co/KDH7y03/tumblr-15579f875b043851a6fb913bed98cd09-88e85763-100-gif.webp)
 ![1](https://i.ibb.co/SQBp79S/tumblr-9d3dfd6d0adc24395f8c28cd1e7f3a53-a49dba4a-100-gif-1.webp)
