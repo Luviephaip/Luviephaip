@@ -4,6 +4,8 @@
 ![1](https://i.ibb.co/DHDZHQrT/tumblr-d8951a2ad1e08a0c2284d3fc62892f8c-fa4f68e7-100.png)
 ![1](https://i.ibb.co/bRy1Gwjk/tumblr-4a1ed823c06449952eb5ecaf767ce138-d62dbb46-100.png)
 ![1](https://i.ibb.co/v6yj5b41/Untitled242-20250215191256.png)
+![1](https://i.ibb.co/0RTz2qfJ/Untitled242-20250215191115.png)
+![1](https://i.ibb.co/gbY8CN0c/Untitled242-20250215190404.png)
 ![1](https://i.ibb.co/J2WytFs/tumblr-5d1f34ddeb66789e54306c948e95a8ee-62d843f5-100.gif)
 ![1](https://i.ibb.co/KDH7y03/tumblr-15579f875b043851a6fb913bed98cd09-88e85763-100-gif.webp)
 ![1](https://i.ibb.co/SQBp79S/tumblr-9d3dfd6d0adc24395f8c28cd1e7f3a53-a49dba4a-100-gif-1.webp)
