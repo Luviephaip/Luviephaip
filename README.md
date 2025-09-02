@@ -33,10 +33,10 @@
 ![1](https://i.ibb.co/4M5sR27/Untitled116-20240824073419.png)
 ![1](https://i.ibb.co/Dkx3Yzw/tumblr-3dea1319246c115c17c48c843c565890-4cd50932-100.gif)
 ![1](https://i.ibb.co/8xBsrkw/tumblr-da3bbcd4f58be5d6ae6c4516800a06c5-058ad707-100-gif.webp)
-![1](https://i.ibb.co/YFqRfRR0/tumblr-d113c797dd9529d45ce5d6e7864e832a-d3c306d5-250.png)
-![1](https://i.ibb.co/8gSDJ0X1/tumblr-ce8156304d069a279cb63e390ef221da-1b12fa84-250.png)
-![1](https://i.ibb.co/5W304gyC/tumblr-a11cae0b666d28aff5a7d4d3d963da90-f553dc1b-250.png)
-![1](https://i.ibb.co/DPKyd4k2/tumblr-f8a0461213a73ff93bd94ba4352e11d0-19172ffc-250.png)
+![1](https://files.catbox.moe/t8ns6i.png)
+![1](https://files.catbox.moe/osu6fu.png)
+![1](https://files.catbox.moe/6ho6lf.png)
+![1](https://files.catbox.moe/x9ae48.png)
 
 
 ![1](https://i.ibb.co/Np6x3dg/tumblr-4a82d2325c4cb1fc03b483eb12ff8a4e-0b1aa913-500.png)
