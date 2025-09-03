@@ -58,8 +58,12 @@
 ![1](https://i.ibb.co/HYHJ3BM/ezgif-3-23131e2b31.webp)
 ![1](https://i.ibb.co/XZrkLdZ/tumblr-14ceb8b9bc57f12130a5dabfe8f91415-90ba347b-250-gif.webp)
 ![1](https://i.ibb.co/VJcwwff/tumblr-b0da08270932c666edc4c9863e802bc9-b1489126-250-gif.webp)
-![1](https://i.ibb.co/gbSdQ1xL/tumblr-b5c4ff35ad00aae8e591d518cb26b82b-48fa5285-250-gif.webp)
-![1](https://i.ibb.co/DDnTZJpp/tumblr-17f108e7ec1f0f4e0de09f7e110c603c-a63fc841-250-gif.webp)
+![1](https://files.catbox.moe/e3h8ko.gif)
+![1](https://files.catbox.moe/0r0zzl.webp)
+![1](https://files.catbox.moe/yz64dz.webp)
+![1](https://files.catbox.moe/yiyz0e.gif)
+![1](https://files.catbox.moe/zpmb2o.gif)
+![1](https://files.catbox.moe/1m19ix.webp)
 
 
 ![1](https://i.ibb.co/tQBhdkB/tumblr-be88b80da809d5dea0fc1a8282384edf-4697290f-640-gif.webp)
