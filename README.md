@@ -1,6 +1,6 @@
 <div align="center">
   
-![1](https://komarev.com/ghpvc/?username=Luviephaip&color=34D9FF&style=plastic&label=Frutiger_Aero)
+![1](https://komarev.com/ghpvc/?username=Luviephaip&abbreviated=true&color=1ED2F2&style=plastic&label=Frutiger_Aero)
 
 ![1](https://64.media.tumblr.com/11aae1910c6f05e25833c39a30eeb704/8dc3bd10b7841dca-89/s1280x1920/1349533ab139dea8ccabbc9854697e7cd1406c50.jpg)
 
